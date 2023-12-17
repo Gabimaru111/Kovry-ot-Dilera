@@ -1,1 +1,0 @@
-# Kovry-ot-Dilera
